@@ -1,4 +1,4 @@
-# 💻🖥 Kenan Alghythee
+# 💻 Kenan Alghythee💻
 
 **` Software Engineer`**
 
